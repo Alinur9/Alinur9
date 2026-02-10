@@ -1,8 +1,3 @@
-### Hi there 👋
+NO
 
-xyzcloudbd.com
-
------bubt----
-
-Email: novemberrainali@gmail.com
 
